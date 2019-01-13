@@ -1,0 +1,4 @@
+# fungsi-untuk-menyederhanakan
+
+
+
